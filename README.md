@@ -1,3 +1,2 @@
 # linguagginadiush
-capire linguaggi mutlimediali
-chgg
+test in classe. oggi è una giornata pff.
